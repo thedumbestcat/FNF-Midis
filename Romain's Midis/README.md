@@ -1,0 +1,1 @@
+Here are Friday Night Funkin Midis i made (very epic). Me and \_Brand0 have different midis, don't forget to check the ones he made ! Of course, these midis are free to use (why would i sell midis) but please credit me if you use them for a cover that you post, thanks !
