@@ -5,7 +5,7 @@
 
 Heya Brando here, 
 
-If ya wanna uses my midis PLEASE CREDIT ME!
+If ya wanna uses my midis PLEASE CREDIT ME OR THIS REPO!
 
 My YT:
 https://www.youtube.com/c/UninterestingKidPlays/
