@@ -10,10 +10,10 @@ If ya wanna uses my midis PLEASE CREDIT ME OR THIS REPO!
 My YT:
 https://www.youtube.com/c/UninterestingKidPlays/
 
-# RomainRo_218's MIDIS
+# thedumbestcat's MIDIS
 
 Hey ! I'm Romain and i'm an idiot :D
 
 I make these midis when i have time or when i'm bored.
 
-If you want to use them, please credit this repository !
+If you want to use them, please credit me or this repository !
